@@ -15,4 +15,8 @@
 * Energías renovables.
 
 
+Alrededor de 7 millones de mexicanos viven en aislamiento geográfico, sin servicios básicos.
 En México, existen más de 500 mil viviendas sin acceso a la energía eléctrica, principalmente en zonas rurales, lo que causa rezago. Ya sea por la lejanía ó las condiciones geográficas que impiden la instalación de una red de distribución ó generación de energía eléctrica para dichas zonas.   
+
+
+Fuente: CONAPO
